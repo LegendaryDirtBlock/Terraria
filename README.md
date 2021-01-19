@@ -1,4 +1,4 @@
-Sadly, my character editing service is going haywire, so the characters may not be out for a bit.
+Sadly, my character editing service is going haywire, so the characters may not be out for a bit. Meanwhile, i do have a 1.3.5 journey character that could update and work. I'm not sure if research will be saved but hopefully it works.
 
 # Creative Mode Terraria
 Need journey mode characters with everything researched? I've got you.
