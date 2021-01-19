@@ -1,3 +1,5 @@
+Sadly, my character editing service is going haywire, so the characters may not be out for a bit.
+
 # Creative Mode Terraria
 Need journey mode characters with everything researched? I've got you.
 
